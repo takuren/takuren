@@ -3,8 +3,6 @@
 ### She He None ♪ BoyGirl. Fem & Masc terms only
 ### Born to be a princess Forced to be a human
 
-im going to put more later oki im tired
-
 
 
 
