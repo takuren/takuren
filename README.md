@@ -1,8 +1,7 @@
 ### HALLO My name is Katja. I'm 18 years old, I use She/None pronouns and Fem terms only! I speak Esp/Eng and I know a bit of DEU. I don't have a DNI, just be normal. I'm selectively mute and avoidant-borderline, I’m usually very awkward and nervous socializing, so be a little patient with me if you wanna be friends 💧 I don't need and neither I use tonetags but if you need them just #lmk okai. I'm also a mirror-sharing [yumejoshi](https://txto.eu.org/blushy), though i'm strictly non-sharing for Takumi. I think that's all you have to know about me! Please feel free to approach if we share [interests](https://txto.eu.org/attached) ♡ baibai
 
 
-![](https://i.postimg.cc/xC8fzyVq/ovi6h3.png)
-
-
+![](https://i.postimg.cc/RCgQH4JP/Captura-de-pantalla-(6918).png)
+like si algunaves te an copiado la skin
 
 
