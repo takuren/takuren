@@ -2,6 +2,5 @@
 
 
 ![](https://i.postimg.cc/RCgQH4JP/Captura-de-pantalla-(6918).png)
-like si algunaves te an copiado la skin
 
 
