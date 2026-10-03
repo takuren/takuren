@@ -1,4 +1,4 @@
-### hello everypony i will be showing yumeart i got slash commissioned here until they're too much that I have to do a strawpage or rentry or something else for it also idk if the watermark actually does something
+### hello everypony i will be showing yumeart i got slash commissioned here until they're too much that I have to do a strawpage or rentry or something else for it
 
 ### @rhdrkf00 on crepe ♡ $16
 ![](https://i.postimg.cc/TYjjBBGM/2111-sin-titulo-20261002150559.png)
